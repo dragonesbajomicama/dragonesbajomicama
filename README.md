@@ -15,18 +15,5 @@ Lagartos alados con gastritis crónica.
 - pan dulce
 - tipografías
 - libros
-
-                      ,-,-      
-                     / / |      
-   ,-'             _/ / /       
-  (-_          _,-' `Z_/        
-   "#:      ,-'_,-.    \  _     
-    #'    _(_-'_()\     \" |    
-  ,--_,--'                 |    
- / ""                      L-'\ 
- \,--^---v--v-._        /   \ | 
-   \_________________,-'      | 
-                    \           
-                     \          
-                      \         
+      
 [instagram](https://www.instagram.com/dragonesbajomicama/#)
